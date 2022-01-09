@@ -3,4 +3,4 @@
 
 
 # Need Help?
-- [Join My Server](https://discord.gg/Wy8asfs)
+- [Join My Server](https://discord.gg/b8mbNpgUuA)
